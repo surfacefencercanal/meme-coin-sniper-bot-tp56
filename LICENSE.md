@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with new MEV Bot for meme coin sniper bot | volume-spike-detection & price-impact-analysis, the #1 meme coin sniper bot. Includes volume-spike-detection and
 
 
 
